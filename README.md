@@ -1,3 +1,3 @@
 Angelina, Russia, Yekaterinburg
 
-Business and System Analytic at Tochka Bank
+Business and System Analyst at Tochka Bank
